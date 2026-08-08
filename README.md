@@ -1,1 +1,1 @@
-# no_more_vibe_coding_i_mean_it_67_percent_only
+# no-vibe-coding
